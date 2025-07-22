@@ -66,7 +66,8 @@ KET’s V.G. Vaze College of Arts, Science and Commerce
 
 ## 📥 Download
 
-🔗 [Download PDF](ABSTRACT%20FINAL.pdf)
+[🖺 Download PDF](ABSTRACT%20FINAL.pdf)
+-
 
 ---
 
